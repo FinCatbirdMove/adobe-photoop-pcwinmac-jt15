@@ -1,4 +1,4 @@
-# 
+# Automatique Adobe Photoshop préréglages pour Mac OS | Premium Adobe Photoshop préréglages pour PC Windows. Avec effets dynamiques et export PDF — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
